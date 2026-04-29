@@ -1,5 +1,4 @@
-## Hi there 👋
-
+Math kid trying to code to become a cool investor
 <!--
 **tashasho/TASHASHO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

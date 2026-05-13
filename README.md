@@ -1,1 +1,1 @@
-i teach ai how to be a better judgy aunty
+ 🎀 i teach ai how to be a better judgy aunty 🎀

@@ -1,1 +1,1 @@
- 🎀 i judge people for a living 🎀
+ i gamble with other people's money and judge people for a living <3

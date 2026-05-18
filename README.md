@@ -1,1 +1,1 @@
- i gamble with other people's money and judge people for a living <3
+ i judge people and take bad gambles for a living <3
